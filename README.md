@@ -1,1 +1,1 @@
-# kognition-labb
+# kognition-labb dålig signifier
